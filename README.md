@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @PikaB002
 - 👀 I’m interested in ... making crazy new friends across Globe and doing innovative project ideas.
 - 🌱 I’m currently learning ...High school
-- 💞️ I’m looking to collaborate on ... any research related to business ides and entrepreneurship skill. 
+- 💞️ I’m looking to collaborate on ... any society of thinkers and research related to business ideas and entrepreneurship skill. 
 - 📫 How to reach me ...@ mayukhpkalita002@gmail.com
 
 <!---
